@@ -1,0 +1,2 @@
+## Mexico
+The start of our "community" started with a want to avoid calling each other, hence, the server proclaimed "Mexico" was developed by yours truly. The first members eventually grew into a semi-stable group of friends.
